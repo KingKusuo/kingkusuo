@@ -1,4 +1,7 @@
-## Hi there 👋
+## i just wanna be able to pay the bills
+
+![](https://github.com/user-attachments/assets/aa2aa36a-2175-4063-802c-9e2e7935c4d1)
+
 
 <!--
 **KingKusuo/kingkusuo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
