@@ -4,6 +4,6 @@
 
 
 <!--
-oi aimgo
+oi amigo
 https://pedrock.netlify.app/ < made with no effort so ignore the info
 -->
